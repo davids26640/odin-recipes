@@ -1,1 +1,2 @@
-wWell this is before i avtually start the project. not too sure what to expect. kinda nervous on what to do.
+well this is before i actually start the project. not too sure what to expect. 
+Having now finished the project; it was pretty easy. I had forgot how to add images but just looked it up and it all came back to me.
