@@ -1,0 +1,1 @@
+wWell this is before i avtually start the project. not too sure what to expect. kinda nervous on what to do.
